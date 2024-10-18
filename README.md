@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kvrthik
-- 👀 I’m interested in fuckinggggggg
+- 👀 I’m interested in coding
 - 
 - ⚡ Fun fact: ...
 
